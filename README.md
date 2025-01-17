@@ -1,0 +1,2 @@
+# jamgacor
+jamgacorenak
